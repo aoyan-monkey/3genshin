@@ -1,1 +1,1 @@
-# aoyan-monkey.github.io-3genshin
+# 3genshin
